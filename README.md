@@ -1,1 +1,1 @@
-Subdomain Takeover By Prachi Gupta
+Subdomain Takeover By Prachi 
